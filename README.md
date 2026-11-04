@@ -5,5 +5,7 @@ HII HI I'M BRYCE AND I REALLY REALLY LOVEEE C+H/CUDDLES HHEHEHEH also i don't mi
 I am VERY friendly, trust.
 Red fictkin and yumeshipper(hyper-sharing) hhhh
 how tf do Github repository work
+
+`I only follow people who i found cool or oomfs!`
 -
 might upd this soon once i get to know more of this Github thing

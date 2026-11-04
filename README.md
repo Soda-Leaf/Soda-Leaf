@@ -1,6 +1,7 @@
 HII HI I'M BRYCE AND I REALLY REALLY LOVEEE C+H/CUDDLES HHEHEHEH also i don't mind if you want to add me as moot!(Only if we've talked or cuddled)
 
-<img width="736" height="736" alt="red captain(1)" src="https://github.com/user-attachments/assets/fb5ea95c-5dec-4e9a-a9d4-bb23af1eadb0" />
+<img width="187" height="232" alt="yeuyu" src="https://github.com/user-attachments/assets/cc0a1597-26b5-4ccd-ba39-ef160a3d1ca7" />
+
 
 I am VERY friendly, trust.
 Red fictkin and yumeshipper(hyper-sharing) hhhh

@@ -8,10 +8,7 @@ Red fictkin and yumeshipper(hyper-sharing) hhhh
 how tf do Github repository work
 
 `I only follow people who i found cool or oomfs!`
--
-if you're lazy to scroll down:
-https://github.com/Soda-Leaf/Dni-list
-https://github.com/Soda-Leaf/Small-note
+
 -
 
 might upd this soon once i get to know more of this Github thing

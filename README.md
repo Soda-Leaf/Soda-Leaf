@@ -7,7 +7,7 @@ how tf do Github repository work
 
 might upd this soon once i get to know more of this Github thing
 
-Current theme: Persona aesthetic <3
+Current theme: Persona , AKA MYSELFFUH
 
 Shoutouts to the people that gave me a fanart!!(including my art too)>
 <img width="1600" height="1600" alt="WhatsApp Image 2026-11-13 at 8 07 04 AM" src="https://github.com/user-attachments/assets/1a25d61f-5a28-40ff-8b6c-180f8bd3ebf5" />

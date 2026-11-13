@@ -18,6 +18,8 @@ I speak:
 
 `English & Indonesia(My nationality).`
 
+I'm sorry if my English grammar is kinda bad
+
 _______________________
 
 `!Not my art!` 

@@ -11,5 +11,6 @@ Double Kill duo ok :-3
 
 _______________________
 
+<img width="732" height="1024" alt="Differences of flirting" src="https://github.com/user-attachments/assets/f5d16cea-2259-41f0-9fa5-587b71bd8171" />
+
 `Art from Pin/Not mine`
-<img width="736" height="414" alt="Fnf vs impostor White" src="https://github.com/user-attachments/assets/b69ff2ad-7a77-4b83-a499-e3babbd26e36" />

@@ -13,6 +13,7 @@ _______________________
 
 <img width="360" height="80" alt="Screenshot 2026-11-13 at 22-36-32 Create a Pride Flag Tierlist Tier List - TierMaker" src="https://github.com/user-attachments/assets/987ec56a-b7da-4849-9506-ce108a4f0b4a" />
 `Polyamorous , Non-binary , Pansexual`
+
 ______________________
 
 

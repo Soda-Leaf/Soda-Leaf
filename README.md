@@ -8,7 +8,8 @@ _______________________
 Double Kill duo :-3
 
 
-<img width="400" height="300" alt="makesweet-imu9iw" src="https://github.com/user-attachments/assets/ac050252-4f25-45b4-894a-a9a37b36d757" />
+<img width="736" height="736" alt="vs impostor Black and White ice cream c_" src="https://github.com/user-attachments/assets/399cc8c2-c212-4643-991f-579d84edb588" />
+
 
 _______________________
 
@@ -17,7 +18,4 @@ _______________________
 `Polyamorous , Non-binary , Pansexual. <3`
 
 _______________________
-
-
-<img width="694" height="559" alt="drinking mil-" src="https://github.com/user-attachments/assets/7bc3c814-3b6c-46cf-9f5c-fe5ef92866ea" />
 

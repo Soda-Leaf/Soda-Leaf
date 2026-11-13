@@ -1,15 +1,31 @@
 HII HI I'M BRYCE AND I REALLY REALLY LOVEEE C+H/CUDDLES HHEHEHEH also i don't mind if you want to add me as moot!(Only if we've talked or cuddled)
 I am VERY friendly, trust.
-Captain Red fictkin and yumeshipper(hyper-sharing) hhhh
-how tf do Github repository work
+Captain Red fictkin and yumeshipper(hyper-sharing) 
 
 _______________________
 
-Double Kill duo :-3
+. I'm going to do a commision art so please press the whatsapp link and stay tuned :3 
+
+. 24 April ... <3
+
+. hey i'm not a tsunami hmph, stop saying that i'm a tiramisu.
+
+_______________________
+
+I speak:
+
+<img width="273" height="80" alt="Screenshot 2026-11-14 at 05-36-07 Create a Country Flag Tier List - TierMaker" src="https://github.com/user-attachments/assets/387d405f-599d-4fd0-bd06-90b723766d40" />
+
+`English & Indonesia(My nationality).`
+
+_______________________
+
+`!Not my art!` 
+
+<img width="736" height="417" alt="A HUG 🥲" src="https://github.com/user-attachments/assets/1ce2f8d3-8c33-4715-9c82-0327560766ad" />
 
 
-<img width="736" height="736" alt="vs impostor Black and White ice cream c_" src="https://github.com/user-attachments/assets/399cc8c2-c212-4643-991f-579d84edb588" />
-
+`Double Kill duo :-3`
 
 _______________________
 
@@ -18,4 +34,13 @@ _______________________
 `Polyamorous , Non-binary , Pansexual. <3`
 
 _______________________
+
+`!Not my art!`
+
+<img width="736" height="417" alt="omg dibujito (no mío) de la nueva serie de among us" src="https://github.com/user-attachments/assets/0e3a0c02-a15e-41fd-8166-f651eaa24267" />
+
+`Camtain eateruhh wtv any ships are accepted ^_^`
+
+_______________________
+
 

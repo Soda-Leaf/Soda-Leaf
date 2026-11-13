@@ -1,6 +1,6 @@
 HII HI I'M BRYCE AND I REALLY REALLY LOVEEE C+H/CUDDLES HHEHEHEH also i don't mind if you want to add me as moot!(Only if we've talked or cuddled)
 
-<img width="187" height="232" alt="yeuyu" src="https://github.com/user-attachments/assets/cc0a1597-26b5-4ccd-ba39-ef160a3d1ca7" />
+
 
 
 I am VERY friendly, trust.

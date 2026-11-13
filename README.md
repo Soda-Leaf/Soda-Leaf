@@ -4,7 +4,7 @@ Captain Red fictkin and yumeshipper(hyper-sharing) hhhh
 how tf do Github repository work
 
 
-Double Kill duo ok :-3
+Double Kill duo :-3
 
 <img width="400" height="300" alt="makesweet-imu9iw" src="https://github.com/user-attachments/assets/ac050252-4f25-45b4-894a-a9a37b36d757" />
 
@@ -17,7 +17,7 @@ _______________________
 
 ______________________
 
+*ok bye thanks for reading <3*
 
-<img width="732" height="1024" alt="Differences of flirting" src="https://github.com/user-attachments/assets/f5d16cea-2259-41f0-9fa5-587b71bd8171" />
+<img width="370" height="200" alt="200" src="https://github.com/user-attachments/assets/d66f7907-3108-4849-bf16-3638afbf21fd" />
 
-*Art from Pin/Not mine*

@@ -4,11 +4,11 @@ Captain Red fictkin and yumeshipper(hyper-sharing)
 
 _______________________
 
-. I'm going to do a commision art so please press the whatsapp link and stay tuned :3 
+- 24 April ... <3
 
-. 24 April ... <3
+- multishipper
 
-. hey i'm not a tsunami hmph, stop saying that i'm a tiramisu.
+- Loves cuddling/c+h SM
 
 _______________________
 

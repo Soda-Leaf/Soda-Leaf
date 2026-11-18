@@ -1,4 +1,6 @@
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Redaction+50&size=23&duration=4999&pause=1009&color=0C1122&background=DAE6FF79&width=435&lines=Why+can't+we+laugh+now+like+we+did+then%3F;How+come+i+see+you+and+ache+instead%3F;How+come+you+only+look+pleased+in+bed%3F;Let's+climb+the+cliff+edge+and+jump+again." alt="Typing SVG" /></a>
+<div align="center">  
+  <P></P><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Redaction+50&size=23&duration=4999&pause=1009&color=0C1122&background=DAE6FF79&width=435&lines=Why+can't+we+laugh+now+like+we+did+then%3F;How+come+i+see+you+and+ache+instead%3F;How+come+you+only+look+pleased+in+bed%3F;Let's+climb+the+cliff+edge+and+jump+again." alt="Typing SVG" /></a>
+<div>
 
 _______________________
 

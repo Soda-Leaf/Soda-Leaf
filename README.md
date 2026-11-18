@@ -15,12 +15,11 @@ ________________________
 
 <img width="99" height="56" alt="red-among-us-show-red" src="https://github.com/user-attachments/assets/d07d81f7-eaad-4e53-9580-a2cbbc1bd9d5" /> <img width="99" height="56" alt="among-us-show-red" src="https://github.com/user-attachments/assets/ef607cda-e9ae-4b45-b076-1059dbc8341d" />
 
-_
+________________________
 
-<img width="498" height="369" alt="flower-flowers" src="https://github.com/user-attachments/assets/0b54992f-d878-4ae0-862d-b9894e76a101" />
-
-.
-
-<img width="459" height="25" alt="divider-lace" src="https://github.com/user-attachments/assets/cd8716dc-1758-4b7a-b713-63596d05a380" />
+<div align="center">  
+  <P></P><img width="498" height="369" alt="flower-flowers" src="https://github.com/user-attachments/assets/0b54992f-d878-4ae0-862d-b9894e76a101" />
+  <P></P><img width="459" height="25" alt="divider-lace" src="https://github.com/user-attachments/assets/cd8716dc-1758-4b7a-b713-63596d05a380" />
+<div></div>
 
 

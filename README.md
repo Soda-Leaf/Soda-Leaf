@@ -2,4 +2,6 @@
 
 _______________________
 
-<img width="736" height="736" alt="Fake Jerry x Wrong Tom" src="https://github.com/user-attachments/assets/716da206-29af-4808-8f61-7069a6eda982" />
+<img width="768" height="583" alt="Screenshot 2026-11-18 at 13-53-49 Online Whiteboard 96733328-0761-9210" src="https://github.com/user-attachments/assets/1e767dd0-239d-4612-ae80-d2e09f3f77b9" />
+
+`Yumeship art by mee ^_^`

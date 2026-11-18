@@ -2,6 +2,13 @@
 
 _______________________
 
+<img width="498" height="249" alt="charliekirk" src="https://github.com/user-attachments/assets/fcaf4555-62bf-41d4-ac0e-8cc9162c7ca9" />
+
+_______________________
+
+
+
+
 <img width="768" height="583" alt="Screenshot 2026-11-18 at 13-53-49 Online Whiteboard 96733328-0761-9210" src="https://github.com/user-attachments/assets/1e767dd0-239d-4612-ae80-d2e09f3f77b9" />
 
 `Yumeship art by mee ^_^`

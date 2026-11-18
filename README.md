@@ -4,6 +4,7 @@
 
 <img width="480" height="64" alt="cat-divider" src="https://github.com/user-attachments/assets/c29c6801-e5e1-42b7-a57d-dde8d3f4a2df" />
 
+.
 
 <img width="498" height="249" alt="charliekirk" src="https://github.com/user-attachments/assets/fcaf4555-62bf-41d4-ac0e-8cc9162c7ca9" />
 
@@ -17,6 +18,7 @@ ________________________
 
 <img width="480" height="64" alt="cat-divider" src="https://github.com/user-attachments/assets/081af380-b49b-4359-a247-58fac2f54022" />
 
+.
 
 <img width="498" height="369" alt="flower-flowers" src="https://github.com/user-attachments/assets/0b54992f-d878-4ae0-862d-b9894e76a101" />
 

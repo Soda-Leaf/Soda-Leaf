@@ -8,4 +8,5 @@ _______________________
 
 
 
-<img width="99" height="56" alt="red-among-us-show-red" src="https://github.com/user-attachments/assets/d07d81f7-eaad-4e53-9580-a2cbbc1bd9d5" />
+<img width="99" height="56" alt="red-among-us-show-red" src="https://github.com/user-attachments/assets/d07d81f7-eaad-4e53-9580-a2cbbc1bd9d5" /> <img width="99" height="56" alt="among-us-show-red" src="https://github.com/user-attachments/assets/ef607cda-e9ae-4b45-b076-1059dbc8341d" />
+

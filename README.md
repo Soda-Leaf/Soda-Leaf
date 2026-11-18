@@ -2,11 +2,10 @@
   <P></P><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Redaction+50&size=23&duration=4999&pause=1009&color=0C1122&background=DAE6FF79&width=435&lines=Why+can't+we+laugh+now+like+we+did+then%3F;How+come+i+see+you+and+ache+instead%3F;How+come+you+only+look+pleased+in+bed%3F;Let's+climb+the+cliff+edge+and+jump+again." alt="Typing SVG" /></a>
 <div>
 
-<img width="459" height="25" alt="divider-lace" src="https://github.com/user-attachments/assets/16466c4e-52ee-43d8-a09e-509f06365890" />
-
-.
-
-<img width="498" height="249" alt="charliekirk" src="https://github.com/user-attachments/assets/fcaf4555-62bf-41d4-ac0e-8cc9162c7ca9" />
+<div align="center">  
+  <p></p><img width="459" height="25" alt="divider-lace" src="https://github.com/user-attachments/assets/16466c4e-52ee-43d8-a09e-509f06365890" />
+  <P></P><img width="498" height="249" alt="charliekirk" src="https://github.com/user-attachments/assets/fcaf4555-62bf-41d4-ac0e-8cc9162c7ca9" />
+<div></div>
 
 ________________________
 

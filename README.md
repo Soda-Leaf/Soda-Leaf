@@ -12,5 +12,7 @@ _______________________
 
 <img width="99" height="56" alt="red-among-us-show-red" src="https://github.com/user-attachments/assets/d07d81f7-eaad-4e53-9580-a2cbbc1bd9d5" /> <img width="99" height="56" alt="among-us-show-red" src="https://github.com/user-attachments/assets/ef607cda-e9ae-4b45-b076-1059dbc8341d" />
 
-<img width="373" height="209" alt="bunny-sleepy" src="https://github.com/user-attachments/assets/49552433-8ee5-4a5d-b5d3-2814fd900271" />
+________________________
+
+<img width="498" height="369" alt="flower-flowers" src="https://github.com/user-attachments/assets/0b54992f-d878-4ae0-862d-b9894e76a101" />
 

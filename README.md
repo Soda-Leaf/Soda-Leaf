@@ -5,3 +5,7 @@ _______________________
 <img width="768" height="583" alt="Screenshot 2026-11-18 at 13-53-49 Online Whiteboard 96733328-0761-9210" src="https://github.com/user-attachments/assets/1e767dd0-239d-4612-ae80-d2e09f3f77b9" />
 
 `Yumeship art by mee ^_^`
+
+
+
+<img width="99" height="56" alt="red-among-us-show-red" src="https://github.com/user-attachments/assets/d07d81f7-eaad-4e53-9580-a2cbbc1bd9d5" />

@@ -20,7 +20,6 @@ ________________________
 
 <div align="center">  
   <P></P><img width="498" height="369" alt="flower-flowers" src="https://github.com/user-attachments/assets/0b54992f-d878-4ae0-862d-b9894e76a101" />
-  <P></P><img width="459" height="25" alt="divider-lace" src="https://github.com/user-attachments/assets/cd8716dc-1758-4b7a-b713-63596d05a380" />
-<div></div>
+  <div></div>
 
 

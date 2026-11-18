@@ -1,8 +1,7 @@
 <div align="center">  
   <p><img width="459" height="25" alt="divider-lace" src="https://github.com/user-attachments/assets/09d7ebfb-abea-4df9-a44c-441c1c9acf1b" />
   <P></P><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Redaction+50&size=23&duration=4999&pause=1009&color=0C1122&background=DAE6FF79&width=435&lines=Why+can't+we+laugh+now+like+we+did+then%3F;How+come+i+see+you+and+ache+instead%3F;How+come+you+only+look+pleased+in+bed%3F;Let's+climb+the+cliff+edge+and+jump+again." alt="Typing SVG" /></a>
-  <P></P><img width="387" height="19" alt="divider" src="https://github.com/user-attachments/assets/9b7df625-45e1-4306-a91a-3534baee7aec" />
-<div>
+<div></div>
 
 <div align="center">  
   <p></p><img width="459" height="25" alt="divider-lace" src="https://github.com/user-attachments/assets/16466c4e-52ee-43d8-a09e-509f06365890" />

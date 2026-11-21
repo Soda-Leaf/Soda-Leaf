@@ -25,7 +25,7 @@ ________________________
 <div align="center">
   <P></P><img width="459" height="25" alt="divider-lace" src="https://github.com/user-attachments/assets/09d7ebfb-abea-4df9-a44c-441c1c9acf1b"
            
-  <P></P><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Redaction+50&size=23&duration=4999&pause=1009&color=0C1122&background=DAE6FF79&width=435&lines=I+know+i'm+no+genius+of+love;Don't+know+that+i+belong;Maybe+i'm+deaf+and+dumb;Maybe+i'm+just+a+bum;Maybe+i+never+loved." alt="Typing SVG" /></a>
+  <P></P><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Redaction+50&size=23&duration=4999&pause=1009&color=0C1122&background=DAE6FF79&width=435&lines=I+know+i'm+no+genius+of+love;Don't+know+that+i+belong;Maybe+i'm+deaf+and+dumb;Maybe+i'm+just+a+bum;Maybe+i+never+loved." alt="Typing SVG"
   
   <P></P><img width="459" height="25" alt="divider-lace" src="https://github.com/user-attachments/assets/09d7ebfb-abea-4df9-a44c-441c1c9acf1b"
 

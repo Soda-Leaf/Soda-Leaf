@@ -18,13 +18,6 @@ ________________________
 
 ________________________
 
-<div align="center">
-  <p></p>Image of this week ^_^
-  
-  <p></p><img width="736" height="736" alt="1071504936366242827" src="https://github.com/user-attachments/assets/f8fc2abe-1338-4873-86ea-53ec8d1acc22" />
-
-_____________________
-
 <div align="center">  
   <P></P><img width="498" height="369" alt="flower-flowers" src="https://github.com/user-attachments/assets/0b54992f-d878-4ae0-862d-b9894e76a101" />
   <div></div>

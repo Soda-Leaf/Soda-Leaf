@@ -22,4 +22,9 @@ ________________________
   <P></P><img width="498" height="369" alt="flower-flowers" src="https://github.com/user-attachments/assets/0b54992f-d878-4ae0-862d-b9894e76a101" />
   <div></div>
 
+<div align="center">
+  <P></P><img width="459" height="25" alt="divider-lace" src="https://github.com/user-attachments/assets/09d7ebfb-abea-4df9-a44c-441c1c9acf1b"
+  <P></P><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Redaction+50&pause=1000&color=040E13&background=FFFFFF5F&width=435&lines=I+know+i'm+no+genius+of+love;Don't+know+that+i+belong;Maybe+i'm+deaf+and+dumb;Maybe+i'm+just+a+bum;Maybe+i+never+loved." alt="Typing SVG" /></a>
+  <P></P><img width="459" height="25" alt="divider-lace" src="https://github.com/user-attachments/assets/09d7ebfb-abea-4df9-a44c-441c1c9acf1b"
+
 

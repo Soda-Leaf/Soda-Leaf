@@ -20,7 +20,8 @@ ________________________
 
 `this me yoo😂`
 
-<img width="208" height="228" alt="pony-town-yumesona-dance-1-a-blinking-padded-4x" src="https://github.com/user-attachments/assets/33983fa3-f39e-44b1-b0a3-25a7eefed6cf" />
+<img width="208" height="228" alt="pony-town-yumesona-dance-1-a-blinking-padded-4x" src="https://github.com/user-attachments/assets/33983fa3-f39e-44b1-b0a3-25a7eefed6cf" /> <img width="212" height="188" alt="pony-town-yumesona-dance-lie-2-blinking-padded-4x" src="https://github.com/user-attachments/assets/1e0f6e12-4ee9-4452-9c62-df208ec3e0cb" />
+
 
 
 __________________________

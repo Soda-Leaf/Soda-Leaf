@@ -18,6 +18,13 @@ ________________________
 
 ________________________
 
+`this me yoo😂`
+
+<img width="208" height="228" alt="pony-town-yumesona-dance-1-a-blinking-padded-4x" src="https://github.com/user-attachments/assets/33983fa3-f39e-44b1-b0a3-25a7eefed6cf" />
+
+
+__________________________
+
 <div align="center">  
   <P></P><img width="498" height="369" alt="flower-flowers" src="https://github.com/user-attachments/assets/0b54992f-d878-4ae0-862d-b9894e76a101" />
   <div></div>
